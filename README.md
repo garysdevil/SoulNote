@@ -1,2 +1,2 @@
 # MySoul
-Record some personal thoughts,ideas
+杂谈，想法，价值观，奇思妙想，商业价值，创业。
